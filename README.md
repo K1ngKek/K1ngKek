@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @K1ngKek
-- 👀 I’m interested in gaming, cooking n' baking aswell as being 
+- 👀 I’m interested in gaming, cooking n' baking aswell as being an arch wizard.
 - 🌱 I’m currently learning how to be a better human being
 - 📫 How to reach me -> you don't.
 - 😄 Pronouns: the/greatest
